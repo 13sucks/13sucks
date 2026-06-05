@@ -1,6 +1,6 @@
 ![](https://img.shields.io/badge/愛-𝓐𝓷𝓰𝓮𝓵ˎˊ˗-pink)
 <p align="center">
-  <img src="https://i.pinimg.com/originals/96/30/24/963024e5682fb1aa44e77c8dadbf467f.gif" width="600"/>
+  <img src="https://i.pinimg.com/1200x/73/8d/c7/738dc74423afeffa0404f74bb502d9ca.jpg" width="600"/>
 </p>
 <p align="center">
 <i><b>iluvmygfyuji >⩊ <⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔</b></i>
