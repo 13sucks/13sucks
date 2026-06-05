@@ -1,10 +1,9 @@
 ![](https://img.shields.io/badge/愛-𝓐𝓷𝓰𝓮𝓵ˎˊ˗-pink)
-<p align="left">
-  <img src="https://i.pinimg.com/736x/90/51/c4/9051c47f5bfb1f0586784accd9eaf6f5.jpg" width="200"/>
+<p align="center">
+  <img src="https://i.pinimg.com/736x/2c/29/04/2c29040da9db65fd8cb159d10c4e85ab.jpg" width="600"/>
 </p>
 <p align="center">
-
-  <i><b>iluvmygfyuji >⩊ <</b></i>
+<i><b>iluvmygfyuji >⩊ <⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔</b></i>
 </p>
 <p align="center">
   <img src="https://i.pinimg.com/originals/0a/45/fa/0a45fa9e4139dc537ebfb705156185df.gif" width="600"/>
