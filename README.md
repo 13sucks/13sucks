@@ -1,9 +1,14 @@
-<p align="left">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Indie+Flower&pause=1000&color=CE73F7&width=435&lines=Happy+birthday.+Kokichi+Oma%2C+my+beloved" alt="Typing SVG" /></a>
+![](https://img.shields.io/badge/愛-𝓐𝓷𝓰𝓮𝓵ˎˊ˗-pink)
+<p align="center">
+  <img src="https://i.pinimg.com/.../738dc74423afeffa0404f74bb502d9ca..." width="600"/>
 </p>
-<p align="left">
-  <img src="https://pbs.twimg.com/media/HLSsK6NbIAAk9ar?format=jpg&name=4096x4096" width="1000">
+<p align="center">
+<i><b>iluvmygfyuji >⩊ <⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔</b></i>
 </p>
+<p align="center">
+  <img src="https://i.pinimg.com/.../0a45fa9e4139dc537ebfb705156185df..." width="600"/>
+</p>
+<p align="center">
 
 <p align="center">
   <a href="https://echosofheliaddotcom.atabook.org/">新book⋆˚࿔</a>
