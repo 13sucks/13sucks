@@ -1,10 +1,13 @@
 <p align="center">
   <img src="https://mypillowfort.net/media5/tumblr_a7ffa234baf51533e8d4d1b358c2e533_b24b71f3_250.gif" width="200">
 </p>
-
 <p align="center">
-  <img src="https://64.media.tumblr.com/087b4e9ac83ccbf743a9547bd805e8ce/169ca972d2c0eb35-07/s250x400/71b88750039c6c519b56c3486deeb7fdbd29a0e4.gif" width="200">
-</p>
+  <img src="https://files.catbox.moe/h40qvy.gif" width="140" alt="gif">
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Twinkle+Star&size=30&pause=1000&color=FF6595&repeat=false&width=435&lines=My+day+ones" alt="Typing SVG" /></a>
+
+
+
+  
 
 <hr>
 Miss u so much, ^. I'm sry for lying 2 u. But maybe I shouldn't have stayed by ur side if I was only gonna hurt u even more. I'm really sry andd I miss u sm. <p align="center">
