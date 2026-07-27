@@ -15,7 +15,7 @@
 
 <strong>Miss u so much, ^. I'm sry for lying 2 u. But maybe I shouldn't have stayed by ur side if I was only gonna hurt u even more. I'm really sry andd I miss u sm.</strong>
 <p align="center">
-  <img src="https://i.postimg.cc/VLGpPrNX/IMG-5873.gif" width="10">
+  <img src="https://i.postimg.cc/VLGpPrNX/IMG-5873.gif" width="35">
 </p>
 
 <p align="center">
