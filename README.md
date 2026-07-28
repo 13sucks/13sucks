@@ -24,14 +24,17 @@
 <hr>
 <p align="center">
 <font size="10"><b><i>my inner circle</i></b></font>
+  <img src="https://64.media.tumblr.com/c8ef3042217a3aa494d0948b4f2ec35d/32e460395851d88a-23/s400x600/dcbec97d1ae776eae7ea8214dbbf0e96d8f11858.pnj" width="355">
  <p align="center"> 
 <font size="10"><b><i>@dawnsummer</i></b></font>
-    <img src="https://files.catbox.moe/o6k09u.gif" width="30">
+    <img src="https://media.tenor.com/piOupYyLux0AAAAi/anime-kitty.gif" width="50">
    <p align="center">
 <font size="10"><b><i>@Vanvill-Margaux</i></b></font>
+       <img src="https://files.catbox.moe/lrj8b1.gif" width="30">
 <p align="center">
-  <img src="https://files.catbox.moe/u6ifdp.gif" width="100">
+  <img src="https://64.media.tumblr.com/797f8ea897b0cd72dda8c29ffe2c7b64/dd860376a80f3f42-63/s400x600/a7374ee41bcd0cb318d56bfb7c4d31aad2653319.gif" width="250">
 </p>
+<hr>
 
 <p align="center">
   <a href="https://echosofheliaddotcom.atabook.org/">新book</a>
