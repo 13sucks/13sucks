@@ -9,6 +9,10 @@
   
 
 <hr>
+<p align="left">
+  <img src="https://files.catbox.moe/ujhvog.gif" width="255">
+</p>
+
 <p align="center">
 <b><i>2 the friend I never thought I'd lose</i></b>
 </p>
