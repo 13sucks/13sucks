@@ -17,8 +17,8 @@
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/yu6ds1.gif" alt="image" width="50">
-  <img src="https://files.catbox.moe/asi8pc.gif" alt="image" width="50">
+  <img src="https://files.catbox.moe/yu6ds1.gif" alt="image" width="30">
+  <img src="https://files.catbox.moe/asi8pc.gif" alt="image" width="30">
 
 <p align="center">
   <img src="https://files.catbox.moe/u6ifdp.gif" alt="image" width="90">
